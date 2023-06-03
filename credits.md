@@ -1,0 +1,1 @@
+pineapple icon: https://www.flaticon.com/free-icon/pineapple_898142?term=pineapple&page=1&position=4&origin=search&related_id=898142
